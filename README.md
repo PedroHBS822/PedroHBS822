@@ -8,6 +8,9 @@ Atualmente trabalho como estágiario na PicPay no período matutino, e curso o 1
 
 #### Entre em contato comigo:
 
-![texto-alternativo](https://cdn4.iconfinder.com/data/icons/social-media-logos-6/512/112-gmail_email_mail-512.png) pedrohbs2208@gmail.com
+📧 pedrohbs2208@gmail.com
+
+🟦 Pedro Henrique Barbosa Silva
 
 📷 ofc_peter
+
